@@ -4,5 +4,5 @@ Also interested in entrepreneurship, personal branding, and self-driven projects
 
 ### Connect with me:
 
-[![Gmail](https://img.shields.io/badge/Gmail-red?style=flat-square&logo=gmail)](abderraoufbk99@gmail.com)
+
 [![Discord](https://img.shields.io/badge/Discord-7289DA?style=flat-square&logo=discord)](https://discord.com/users/raouf._.bk)
